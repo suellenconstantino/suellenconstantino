@@ -1,7 +1,7 @@
 sue- 👋 Hi, I’m @suell  enconstantino 
 - 👀 I’m interested in  aprender a progamar
 - 🌱 I’m currently learning  logica de programação
-- 💞️ I’m looking to collaborate on ...
+- 💞️ I’m looking to collaborate 
 - 📫 How to reach me ...
 
 <!---
