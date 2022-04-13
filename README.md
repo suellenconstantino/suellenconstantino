@@ -1,4 +1,4 @@
-sue- 👋 Hi, I’m @suell  enconstantino 
+ 👋 Hi, I’m @suellenconstantino 
 - 👀 I’m interested in  aprender a progamar
 - 🌱 I’m currently learning  logica de programação
 - 💞️ I’m looking to collaborate 
