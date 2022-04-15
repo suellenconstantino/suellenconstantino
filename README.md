@@ -1,6 +1,8 @@
 ### Olá 🙋‍♀️ Eu sou a Su Constantino
 - ♻ Em plena transição profissional 👀  ...
 - 💡 Aprender a progamar é o meu objeto 💪💻   ...
+- 💜 Mãe da Maluh 💜
+- 💙 Mãe do Tom 💙
 ### Enquanto isso, continuo sendo  Desinger Digital e Gráfica ##
 
  <div style="display: inline_block"><br>
